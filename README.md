@@ -4,6 +4,6 @@
 ### 微信用户和QQ用户请复制到浏览器访问！
 ## 【地址1】：http://www.danainiu4.pw
 ## 【地址3】：http://www.danainiu5.pw
-## 【地址4】：http://926.so/
-## 【地址6】：http://danainiu.pw/
+## 【地址4】：http://www.danainiu6.pw
+## 【地址6】：http://www.danainiu7.pw
 ### 重要提示：收藏本页面，明天发大财
